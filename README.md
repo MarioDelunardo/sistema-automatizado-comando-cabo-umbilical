@@ -7,5 +7,7 @@ Teste em laboratório - acelerado: https://youtu.be/CBsWS-EpWPE
 
 Comparativo - Carretel manual vs Carretel automatizado: https://youtu.be/ouyDpoPmivM
 
+Teste em atividade de campo: https://youtube.com/shorts/Z97Gr6I7z58?feature=share
+
 Os vídeos estão disponíveis também para download e visualização no link:
 https://clouditv-my.sharepoint.com/:f:/g/personal/mario_torres_aluno_itv_org/Esiw7cFvkCNEvBsQqhHGewwB1Mc-WSZvNO4BOk3ewozvUw?e=nLU2Ja
