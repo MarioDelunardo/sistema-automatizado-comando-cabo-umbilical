@@ -9,5 +9,7 @@ Comparativo - Carretel manual vs Carretel automatizado: https://youtu.be/ouyDpoP
 
 Teste em atividade de campo: https://youtube.com/shorts/Z97Gr6I7z58?feature=share
 
+Teste - Carretel aprimorado: https://youtu.be/RyueHHIaIos
+
 Os vídeos estão disponíveis também para download e visualização no link:
 https://clouditv-my.sharepoint.com/:f:/g/personal/mario_torres_aluno_itv_org/Esiw7cFvkCNEvBsQqhHGewwB1Mc-WSZvNO4BOk3ewozvUw?e=nLU2Ja
